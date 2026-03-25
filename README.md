@@ -5,5 +5,5 @@
 - 🤔 I’m looking for advice on coding
 - 📫 How to reach me: adrianoksangma@gmail.com
 - 😄 Pronouns: He/Him
-- ⚡ Fun fact: A 19y High school student learning and doing projects that may help me achive things for the future
+- ⚡ Fun fact: A 19y High school student learning and doing projects that may help me achieve things for the future
   
